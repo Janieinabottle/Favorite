@@ -7,5 +7,6 @@ I enjoy upkeeping my health mentally and physically. **I believe health is wealt
 - I also implement having a healthy diet in my day to day by meal prepping and only keeping healthy foods in my kitchen. I like doing this as well because it plays another factor in my health. *Less time being sick, more time to live life.*
    
 ![Healthy](Healthy.jpg)
+
 Heres a link to find ways to implement healthy lifestyle that fit into your daily routine 
 [YouTube](https://www.youtube.com/)
