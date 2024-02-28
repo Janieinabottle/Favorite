@@ -1,5 +1,6 @@
 # Favorite
 My favorite thing to do
+
 **Live a healthy lifestlye, Physically & Mentally!**
 ## Summary 
 I enjoy upkeeping my mental and physical health. **I believe health is wealth.** I stay motivated to do this by knowing it will pay off in my future as I age. 
