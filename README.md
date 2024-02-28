@@ -1,7 +1,6 @@
 # Favorite
 My favorite thing to do
-
-*insert picture of walking dog here*
+**Live a healthy lifestlye, Physically & Mentally!**
 ## Summary 
 I enjoy upkeeping my mental and physical health. **I believe health is wealth.** I stay motivated to do this by knowing it will pay off in my future as I age. 
 ⭐ I upkeep my health by walking & running 2-3 miles a day. I enjoy doing this because it helps clear my head and keeps my inner peace balanced.
